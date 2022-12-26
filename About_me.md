@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LoylP
+- 👀 I’m interested in AI
+- 🌱 I’m currently studying at UIT
